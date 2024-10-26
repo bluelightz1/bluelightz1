@@ -20,6 +20,20 @@
 
 - ⚡ Fun fact: ...€€€€€€€€€what_is_time_/t="?"_baby_i_really_don't_know!ONLY PAIN ⏱️🔠🍷🌬️🛰️🥇🥈🥉       🥙=🤫$🇺🇲 $☠️$✍️$📰☣️🧠{😟  € ( "~+🚑 = "$" = "[-*,00€]"        |🩹"0,00€")   "📊€🏛️"   ◀️€  ⚠️!📲!⚠️ 📉{[🇦🇫?🏥 🗺️ 🗓️=📋+📆+🩹]⏯️📈👩‍🔬(jo🪀©️jo)  "👩‍⚕️Doc.for -"Drugs 📚 (a-z)" 🏥"🔃" "🚛Dealer👨‍🏭"            "👩‍🌾Producer🪴🪴🪴🪴"           "🪴drugs🗺 🗓📋+📆+🙊💬"€"$ :suspect: 👩‍🌾📦🦸:dependabot: 🏬 🧢 👶 🩹🇦🇫☑️ 🤞🔠 🛂     €€€€
 
+U know the old Song= Geld regiert die Welt 
+🎼🏧💳🇪🇺🛂💶🚦🛂💻👮🛂👮‍♂️👮‍♀️🪪🗂️ 🅰️Question:"Did....?"
+{Moralisches Recht:🇮🇱🕍"God..יהוה."JHWH" 🇮🇱 Sollwert: =Kooperation) 
+Money=Cash=$=%Zinsen=Kinder=€=Geld 👏     🔧👷👷‍♂️🧑‍⚕️👪 
+
+🍎✈️🧑‍🎤🎵😒 🇺🇳 --📖🌝🔳🌞🪀---------------------,--$ 🇺🇲
+🏴‍☠️🛡️🏦🏦 🫨🛫📡🛰️⏳▶️☯️🌇🤟🏰💶🇪🇺💰💸🤑🖱️⌨️🔐*️⃣👩‍💼  Pharmaindustry🧑‍🏭 🧑‍⚕️📱🔬⚠️🦠👑☣️📵🚼🧮⏸️📦⏹️📖📘😠💙💥🎞️🚻
+🕍"God..יהוה."JHWH" 🇮🇱
+
+"Gott, wie lange muss ich noch leiden?🇺🇦&🇵🇸=🇺🇲&🇮🇱  🤙⚡🎮 🅰️=addicted 🎛️=control ⚕️◽◾◼️◻️◾◻ 🫡💤😵⬜🌔✅✅🍦🧊🦮🦮👩‍💼🪑🎙️👁️‍🗨️💭
+🖕🚭
+🖥️🛡️🏹🚨💳®️🏦🪨🧆☕🚬🍬🍪🔮⚠️🪰🇮🇱
+ <a href="https://www.youtube.com/watch?v=0GYMDTa9CgE">Bargeld</a>
+
 - 
 - e= Elementarladung, die kleinste in der Natur frei vorkommende elektrische Ladungsmenge. Ihr Betrag e = (1,602 177 33 ± 0,000 000 49) · 10-19 C ist eine Fundamentalkonstante. Von den Elementarteilchen besitzen z.B. das Proton und das W+-Boson die Ladung +e, das Elektron, das Myon und das W--Boson die Ladung -e.
 
@@ -27,4 +41,6 @@
 Terra
 bluelightz1/bluelightz1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
+
+.
 --->
