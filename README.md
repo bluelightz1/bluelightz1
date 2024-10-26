@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bluelightz1
+- 👋 Hi, I’m @bluelightz1 🌇📺🔞
 - 👀 I’m interested in ...Computer,Technology,pharmacology, health, Industries, programms
 - 🌱 I’m currently learning ..."still english", "work-life-balance"
 - 💞️ I’m looking to collaborate on ... 🔢
